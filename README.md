@@ -1,0 +1,1 @@
+# LuminaX-alt-GSoC-Project-Ideas-2026
